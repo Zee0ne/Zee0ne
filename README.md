@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zee0ne
-- 👀 I’m interested in anything with an engine in it.
+- 👀 I’m interested in anything with an engine in it, the more power the better.
 - 🌱 I’m currently learning HTML, CSS, and JavaScript.
 - 💞️ I want to collaborate on anything that enhances my knowledge and skills.
 - 📫 How to reach me workscreative021@gmail.com or zeeone on discord.
